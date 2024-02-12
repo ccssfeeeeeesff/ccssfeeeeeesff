@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on unblocking things
 - 📫 How to reach me dominicef@bsd45.net
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: im still in 5th grade    
+- ⚡ Fun fact: im 90000000000000000000000000000000000000000000000 years old  
 
 <!---
 ccssfeeeeeesff/ccssfeeeeeesff is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
